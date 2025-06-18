@@ -1,0 +1,1 @@
+# Sch-mgt-sanity-studio
